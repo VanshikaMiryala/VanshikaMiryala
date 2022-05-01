@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VanshikaMiryala
+- 👀 I’m interested in astronomy and coding
+- 💞️ I’m looking to collaborate on coding
